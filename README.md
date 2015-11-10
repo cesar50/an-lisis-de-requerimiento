@@ -1,1 +1,0 @@
-# an-lisis-de-requerimiento
